@@ -1,1 +1,1 @@
-Ege Çırpanlı
+Altay gel bi
