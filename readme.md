@@ -1,3 +1,5 @@
+Egemen ÖZDEN
+
 Deniz Ök
 
 Işınnur Günay
@@ -35,5 +37,4 @@ Mert Sancar
 Abdülsamet Aydınhan
 
 BERAT SEVEN
-
 
