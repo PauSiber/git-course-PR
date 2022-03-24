@@ -1,3 +1,5 @@
+Işınnur Günay
+
 Serdar Kış
 
 Tuna Bostancıbaşı
@@ -31,3 +33,4 @@ Mert Sancar
 Abdülsamet Aydınhan
 
 BERAT SEVEN
+
