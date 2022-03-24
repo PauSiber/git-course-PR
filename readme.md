@@ -1,6 +1,8 @@
-Tuna Bostancıbaşı ---
+Serdar Kış
 
-Altay gel bi
+Tuna Bostancıbaşı
+
+Ege Çırpanlı
 
 Berna Varol 
 
@@ -29,4 +31,3 @@ Mert Sancar
 Abdülsamet Aydınhan
 
 BERAT SEVEN
-
