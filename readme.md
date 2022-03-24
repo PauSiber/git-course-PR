@@ -1,3 +1,5 @@
+Havva Nur Durudeniz
+
 mehmet fatih kavala
 
 Oğuzhan Kuzlukluoğlu
