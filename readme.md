@@ -1,3 +1,5 @@
+Şule İzel Sevim
+
 Ali Emir Sahin
 
 Hasan Türkyılmaz
