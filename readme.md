@@ -1,3 +1,5 @@
+Semanur Özkan
+
 Havva Nur Durudeniz
 
 mehmet fatih kavala
@@ -21,3 +23,4 @@ Mert Sancar
 Abdülsamet Aydınhan
 
 BERAT SEVEN
+
