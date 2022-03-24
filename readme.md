@@ -1,3 +1,5 @@
+Oğuzhan Kuzlukluoğlu
+
 Ali Mert Kaya
 
 Enes Kaya
@@ -15,3 +17,4 @@ Mert Sancar
 Abdülsamet Aydınhan
 
 BERAT SEVEN
+
