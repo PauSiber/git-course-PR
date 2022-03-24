@@ -1,3 +1,5 @@
+mehmet fatih kavala
+
 Oğuzhan Kuzlukluoğlu
 
 Ali Mert Kaya
@@ -17,4 +19,3 @@ Mert Sancar
 Abdülsamet Aydınhan
 
 BERAT SEVEN
-
