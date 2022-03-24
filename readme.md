@@ -1,3 +1,5 @@
+Berna Varol 
+
 Semanur Özkan
 
 Havva Nur Durudeniz
@@ -23,4 +25,3 @@ Mert Sancar
 Abdülsamet Aydınhan
 
 BERAT SEVEN
-
