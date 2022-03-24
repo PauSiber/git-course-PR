@@ -1,3 +1,5 @@
+Deniz Ök
+
 Işınnur Günay
 
 Serdar Kış
@@ -33,4 +35,5 @@ Mert Sancar
 Abdülsamet Aydınhan
 
 BERAT SEVEN
+
 
